@@ -1,5 +1,5 @@
 # 💫 About Me:
-I am always looking to learn and<br>acquire new skills. I enjoy coding<br>because I get to work and learn<br>new skills every day. And I am<br>looking to update my knowledge<br>
+I am always looking to learn and acquire new skills. I enjoy coding because I get to work and learn<br>new skills every day. And I am looking to update my knowledge
 
 
 ## 🌐 Socials:
